@@ -1,4 +1,4 @@
-boas vindas ao meu perfil🙌
+boas vindas ao meu perfil😋
 
 meu nome é Cristiano
 
@@ -6,4 +6,10 @@ meu nome é Cristiano
 -Estou me desenvolvendo na linguagem JavaScript
 -Utilizo esse espaço para minha organização e compartlhamento dos meus projetos desenvolvidos
 
-você entra em contatos comigo
+**###você entra em contatos comigo**👻
+
+00001109713794sp@al.educacao.sp.gov.br
+
+@criszzzzzzk
+
+![](https://media.tenor.com/HCF2gJUUdCsAAAAj/cannonbolt-dance.gif)
