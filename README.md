@@ -12,5 +12,5 @@ meu nome é Cristiano
 
 @criszzzzzzk
 
-![](https://media.tenor.com/4LnYrYcCoTMAAAAM/beaver-beavertalks.gif)
+![](https://media.tenor.com/O9vOT54k9xcAAAAM/bluezao.gif)
 
